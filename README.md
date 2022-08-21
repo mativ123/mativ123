@@ -6,4 +6,4 @@ hihihihihi
 ![](https://pbs.twimg.com/media/E_WdamWUcAAzSl6.jpg)
 ![](https://c.tenor.com/-hRODSwuox4AAAAd/jinx-bigfoot-jinx.gif)
 
-If you have a problem with that we can take it outside!!!!😡😡😡😡😡
+If you have a problem with that you can take it up with the manager!!!!😡😡😡😡😡
