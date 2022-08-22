@@ -6,5 +6,3 @@
 ![](https://pbs.twimg.com/media/FJh_qFlVgAMOxxW.jpg:large)
 ![](https://pbs.twimg.com/media/E_WdamWUcAAzSl6.jpg)
 ![](https://c.tenor.com/-hRODSwuox4AAAAd/jinx-bigfoot-jinx.gif)
-
-:face_with_raised_eyebrow: 
